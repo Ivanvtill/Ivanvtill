@@ -1,1 +1,1 @@
-# gamble
+![](https://cdn.discordapp.com/attachments/953017747200147487/1302321608266088458/IMG_6870.png?ex=6727b103&is=67265f83&hm=d0dbd949faa9a3019c32a87bba111c658eb33b07b6bab3b8f3d39dd0c8cb5a47&)
