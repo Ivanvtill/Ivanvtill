@@ -1,3 +1,3 @@
-count ur days megz
+
 ![](https://cdn.discordapp.com/attachments/953017747200147487/1302321608266088458/IMG_6870.png?ex=6727b103&is=67265f83&hm=d0dbd949faa9a3019c32a87bba111c658eb33b07b6bab3b8f3d39dd0c8cb5a47&)
 ![](https://cdn.discordapp.com/attachments/953017747200147487/1303099839726223440/IMG_6919.png?ex=672a85cc&is=6729344c&hm=db51cbd4b097d18b2e0577554d084b4ed23d8c071783c295b8e6d0981d939c5b&)
